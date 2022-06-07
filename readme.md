@@ -17,11 +17,11 @@ I am studying at Hanoi University of Science and Technology (HUST).
                                                     ONE LOVE. ONE FUTURE
 Reach me: [Instagram](https://www.instagram.com/104._.wonohfor/) - [Twitter](https://twitter.com/104_wonohfor)
 
-Donate for me some Americano :> : [PayPal](https://www.paypal.com/paypalme/104wonohfor) - [Playerduo] (đang cập nhật)
+Donate me some Americano 🤤 : [PayPal](https://www.paypal.com/paypalme/104wonohfor) - [Playerduo] (đang cập nhật)
 Or: l88888888888 TP Bank (Vo Duc Thang)
 
 ```diff
-+ LISTENING ON SPOTIFY: 
++ ️🎧 LISTENING ON SPOTIFY️:
 ``` 
 
 -----------------------------------[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31orsm4voxb6nasyw57fulqpzmsq&cover_image=true&theme=default)](https://spotify-github-profile.vercel.app/api/view?uid=31orsm4voxb6nasyw57fulqpzmsq&redirect=true)-----------------------------------
