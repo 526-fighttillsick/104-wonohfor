@@ -15,7 +15,7 @@ I am studying at Hanoi University of Science and Technology (HUST).
     -1010100              1100110    10011001011001100000      001011010100110000110               10110010
                                             
                                                     ONE LOVE. ONE FUTURE
-About me: [Instagram](https://www.instagram.com/104._.wonohfor/) - [Twitter](https://twitter.com/104_wonohfor)
+Reach me: [Instagram](https://www.instagram.com/104._.wonohfor/) - [Twitter](https://twitter.com/104_wonohfor)
 
 Donate for me some Americano :> : [PayPal](https://www.paypal.com/paypalme/104wonohfor) - [Playerduo] (đang cập nhật)
 Or: l88888888888 TP Bank (Vo Duc Thang)
