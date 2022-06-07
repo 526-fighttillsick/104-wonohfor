@@ -20,4 +20,4 @@ Reach me: [Instagram](https://www.instagram.com/104._.wonohfor/) - [Twitter](htt
 Donate for me some Americano :> : [PayPal](https://www.paypal.com/paypalme/104wonohfor) - [Playerduo] (đang cập nhật)
 Or: l88888888888 TP Bank (Vo Duc Thang)
 
-[[https://spotify-github-profile.vercel.app/api/view.svg?uid=31orsm4voxb6nasyw57fulqpzmsq&redirect=true][https://spotify-github-profile.vercel.app/api/view.svg?uid=31orsm4voxb6nasyw57fulqpzmsq&cover_image=true&theme=default&bar_color=53b14f&bar_color_cover=true)]]
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31orsm4voxb6nasyw57fulqpzmsq&cover_image=true&theme=default)](https://spotify-github-profile.vercel.app/api/view?uid=31orsm4voxb6nasyw57fulqpzmsq&redirect=true)
